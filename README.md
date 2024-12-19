@@ -1,3 +1,3 @@
 Hi there! 👋
 
-I'm Yash. I like to learn and explore new things in the world of technology. 
+I'm Yash, a tech enthusiast who loves learning and exploring new things in the world of technology.
